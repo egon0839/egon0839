@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on my own webpage.<br>⚡ Professional Skid.
+🔭 I’m currently working on my own webpage.
 
 
 ## 🌐 Socials:
